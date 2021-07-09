@@ -1,0 +1,1 @@
+This application servse as a platform for people to connect with others that share the interest of astrology
